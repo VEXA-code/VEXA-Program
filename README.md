@@ -1,4 +1,4 @@
 # VEXA-Program
 วิธีโหลดโปรแกรม
 
-![howto](https://github.com/user-attachments/assets/eabc2b32-cdb1-4f0c-b2ff-72932d837d1b)
+![0908(1) (1)](https://github.com/user-attachments/assets/b266cd9c-4b1e-4cc5-91f0-a97a39b8b198)
